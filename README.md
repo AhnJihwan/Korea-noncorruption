@@ -12,4 +12,4 @@ Some politics stuff about Lee's corruption
     이재명-이재선 녹취파일: https://youtu.be/fpHU1ythvA0
     이재명 크로커다일 남자훈련소: https://youtube.com/playlist?list=PLgUQc-w_4F0LUItXsqxCPhrwHvbjRA0ir
 # 국민의힘 尹후보 당선
-    국민의힘 尹후보 당선: https://youtu.be/LVuFO5T_B5E
+   국민의힘 尹후보 당선: https://youtu.be/LVuFO5T_B5E
