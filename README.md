@@ -23,3 +23,5 @@ Some politics stuff about Lee's corruption
 
 ## 국민의힘 尹후보 당선
    국민의힘 尹후보 당선: https://youtu.be/LVuFO5T_B5E
+
+Idea from https://github.com/cirosantilli/china-dictatorship
